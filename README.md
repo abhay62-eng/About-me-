@@ -7,7 +7,7 @@
 
 # Abhay
 
-### Cyber Developer • AI Enthusiast
+### backend developer• AI Enthusiast
 
 <br>
 
