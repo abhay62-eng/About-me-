@@ -7,7 +7,7 @@
 
 # Abhay
 
-### backend developer• AI Enthusiast
+### Backend developer• AI Enthusiast
 
 <br>
 
